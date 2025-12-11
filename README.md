@@ -19,4 +19,5 @@ Haskell enthusiast • Bash tinkerer • Ruby enjoyer  <br>Functional programmin
 [![](https://visitcount.itsvg.in/api?id=Shen367&icon=0&color=0)](https://visitcount.itsvg.in)
 
 ![my certi](https://i.imgur.com/jJIQ0fs.jpeg)
+![and](https://i.imgur.com/EZKipGR.jpeg)
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
